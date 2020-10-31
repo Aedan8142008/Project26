@@ -1,0 +1,5 @@
+1 egg
+½ teaspoon salt
+½ teaspoon ground black pepper 
+1 pound ground beef
+½ cup fine dry bread crumbs
